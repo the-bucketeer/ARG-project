@@ -1,0 +1,1 @@
+this is an arg with a game i made for scratch hope you enjoy it PS:ghost co is not a real company
